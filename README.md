@@ -15,3 +15,12 @@ Very fun so far.
 
 Over and out, odeelio.
 End log of day 2.
+
+# Day 3 2022-02-13 22:41
+Finished chapter 2, game works exactly as expected. Will continue again tomorrow.
+
+The early bird gets the worm,
+The bird who waits gets the best worm.
+
+Over and out, odeelio.
+End log of day 3.
