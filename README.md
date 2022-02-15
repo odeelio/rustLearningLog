@@ -24,3 +24,12 @@ The bird who waits gets the best worm.
 
 Over and out, odeelio.
 End log of day 3.
+
+# Day 4 2022-02-15 23:04
+No more progress made other than reading the start of chapter 3. Though I have something else planned, a blog perhaps.
+
+A bird who flies far has no purpose if its story does not travel far beyond its nest.
+
+Over and out, odeelio.
+End log of day 4.
+
