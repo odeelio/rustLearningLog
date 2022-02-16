@@ -33,3 +33,10 @@ A bird who flies far has no purpose if its story does not travel far beyond its 
 Over and out, odeelio.
 End log of day 4.
 
+# Day 5 2022-02-16 23:17
+Did nothing today, quite sad, I will try making a blog tomorrow.
+
+Good things come to those who wait, good things never arrive for ones who do not have anything to wait for.
+
+Over and out, odeelio.
+End log of day 5.
